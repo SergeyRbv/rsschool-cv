@@ -1,6 +1,6 @@
 # **Ryabov Sergey**
 ## **Contacts for communication**
-  * [Telegramm](https://t.me/boxforde)  
+  * [Telegram](https://t.me/boxforde)  
   * [Email](http://serzryabov14@gmail.com)  
   * [GitHub](https://github.com/SergeyRbv)  
   * [Linkedin](https://www.linkedin.com/in/Sergeyrbv) 
